@@ -1,4 +1,4 @@
-# 
+# Nouveau Sejda PDF modèles pour Mac OS | Avancé Sejda PDF modèles pour PC Windows. Avec gestion des stocks et prévision de trésorerie — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
